@@ -1,4 +1,5 @@
 - Hi hey :D. I'm kuro-ryuu, but I'd like to be call ryuu or Yugo
 - Not a native English speaker so my grammar can be somtimes very trash :/
 - I'm pretty much into anything that's in touch with Japanese stuffs (Big weeb to be simple)
-- I'm learning a lots of stuff s, trying to learn how to coding but still im very bad at it (Would be much appreciate if someone could lend a hand when i need >.<)
+- I'm trying to learn how to coding but still im very bad at it (Would be much appreciate if someone could lend a hand when i need >.<)
+- Also I'm learning how to use photoshop so I can do graphics design.
