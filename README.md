@@ -1,7 +1,7 @@
-# <center>Hey chooms, it's me: CDKR</center>
+# <center>HimynameisCDKR</center>
 <s><center>Minimal brain activity specimen btw ↑↑↑↑↑↑</center></s>
 
-<center>First year IT student and biodegradeable. I have severe case of procastination that need not to be studied because it won't solve itself any time soon. Anyway here's a depiction I made (i wish i'm a real artist)
+<center>First year IT student and biodegradeable. I have severe case of procastination that need not to be studied because it won't solve itself any time soon.
 
 
 
